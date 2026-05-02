@@ -6,4 +6,7 @@ link: https://youtu.be/h_bAoXUDZYY?si=Rpa0BkSPWlc0ZNVm
 some of the warmups
 
 Day 1- https://youtu.be/t8wPPPOFgXM?si=f2AooafV0k5qsQG_
+
 Day 2 - https://youtu.be/yenzZVrTP2g?si=OPXNHhg_Xu2ZXYkc
+
+Day 3- Mock interview ; https://youtu.be/kKxKcvR-ieM?si=a0bnoZFsS6k0Qtat
