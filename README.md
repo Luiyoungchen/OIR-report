@@ -18,3 +18,5 @@ Day 5- Rules ; https://youtu.be/k8TQyx7tkSM?si=HTr5NcW5TYyNMSLp
 Day 6- lecturure ; https://youtu.be/Cj7cIS97kaI?si=2E2tYKgfSNo7RvN2
 
 Day 7- Lectureure topic (Mercy killing) ; https://youtu.be/uHvJEFAEcKM?si=zxbB2QQK0PFUZbaA
+
+Day 8- Lectureure topic (Indian ocean) ; https://youtu.be/SBaGAmRcHSQ?si=g7k7C7iVGhh3wYcO
