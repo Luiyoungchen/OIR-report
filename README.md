@@ -20,3 +20,5 @@ Day 6- lecturure ; https://youtu.be/Cj7cIS97kaI?si=2E2tYKgfSNo7RvN2
 Day 7- Lectureure topic (Mercy killing) ; https://youtu.be/uHvJEFAEcKM?si=zxbB2QQK0PFUZbaA
 
 Day 8- Lectureure topic (Indian ocean) ; https://youtu.be/SBaGAmRcHSQ?si=g7k7C7iVGhh3wYcO
+
+Day 9- Lectureure topic (Womwn empowerment) ; https://youtu.be/vl8nnq9ObEI?si=ySuc-NoTVOy9PhSV
