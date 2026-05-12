@@ -28,3 +28,5 @@ Day 9- Lectureure topic (ISRO) ; https://youtu.be/7Id1oIjE-OE?si=9VqhavG1S-L3dhe
 Day 10 -Lectureure topic (AI) ; https://youtu.be/n9r0vqCJ6Mo?si=yZ30QwTetiZ8JW8Q
 
 Day 11 -Lectureure topic (Brics summit) ; https://youtu.be/Fwjn6lHEKjw?si=-GTKoipU7hxMU18w
+
+Day 12 - Lectureure topic (Terrorism) ; https://youtu.be/Fwjn6lHEKjw?si=N0kM8-R7CcKM2DS_
