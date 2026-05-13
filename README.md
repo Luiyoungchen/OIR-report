@@ -30,3 +30,5 @@ Day 10 -Lectureure topic (AI) ; https://youtu.be/n9r0vqCJ6Mo?si=yZ30QwTetiZ8JW8Q
 Day 11 -Lectureure topic (Brics summit) ; https://youtu.be/Fwjn6lHEKjw?si=-GTKoipU7hxMU18w
 
 Day 12 - Lectureure topic (Terrorism) ; https://youtu.be/Fwjn6lHEKjw?si=N0kM8-R7CcKM2DS_
+
+Day 13 - Lectureure topic (G20) ; https://youtu.be/Qm84EwkBK5U?si=6LQEGgy74qFqbFf1
