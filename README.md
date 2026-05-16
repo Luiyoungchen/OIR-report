@@ -34,3 +34,5 @@ Day 12 - Lectureure topic (Terrorism) ; https://youtu.be/Fwjn6lHEKjw?si=N0kM8-R7
 Day 13 - Lectureure topic (G20) ; https://youtu.be/Qm84EwkBK5U?si=6LQEGgy74qFqbFf1
 
 Day 14 - Lectureure topic (INDO-PAK relation) https://youtu.be/dz6pdGM1aRI?si=HAhWaz3g4vdhk4P9
+
+Day 15 - Lectureure topic (INDO-China relation) ; https://youtu.be/bCyWUbLS5mg?si=rBQ-xhH871iH_FQQ
