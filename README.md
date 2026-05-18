@@ -38,3 +38,5 @@ Day 14 - Lectureure topic (INDO-PAK relation) https://youtu.be/dz6pdGM1aRI?si=HA
 Day 15 - Lectureure topic (INDO-China relation) ; https://youtu.be/bCyWUbLS5mg?si=rBQ-xhH871iH_FQQ
 
 Day 16 - Lectureure topic (INDO-Russia relation) ; https://youtu.be/c-BERbvB9VY?si=O82edto68REG7l-o
+
+Day 17 - Lectureure topic (INDO-Bangladesh relation) ; https://youtu.be/8F4-IvD6Wig?si=oqY6dLSjHPbtn7-m
