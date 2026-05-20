@@ -42,3 +42,5 @@ Day 16 - Lectureure topic (INDO-Russia relation) ; https://youtu.be/c-BERbvB9VY?
 Day 17 - Lectureure topic (INDO-Bangladesh relation) ; https://youtu.be/8F4-IvD6Wig?si=oqY6dLSjHPbtn7-m
 
 Day 18 - Lectureure topic (DRDO) ; https://youtu.be/7KLEkCHkyQI?si=YYqYfdtyc3wLshKL
+
+Day 18 - Lectureure topic (BRAC) ; https://youtu.be/U-v6P8uKq0c?si=7ui3n8jb_YUTM58i
