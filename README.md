@@ -46,3 +46,5 @@ Day 18 - Lectureure topic (DRDO) ; https://youtu.be/7KLEkCHkyQI?si=YYqYfdtyc3wLs
 Day 19 - Lectureure topic (BRAC) ; https://youtu.be/U-v6P8uKq0c?si=7ui3n8jb_YUTM58i
 
 Day 20 - Lectureure topic (INDO-USA relation) ; https://youtu.be/uaiTpRLy52Q?si=OKf872kdRm4-yrR6
+
+Day 21 - Lectureure topic (Capital Punishment) ; https://youtu.be/uaiTpRLy52Q?si=osoXQvCWgqX_E7oA
