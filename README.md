@@ -50,3 +50,7 @@ Day 20 - Lectureure topic (INDO-USA relation) ; https://youtu.be/uaiTpRLy52Q?si=
 Day 21 - Lectureure topic (Capital Punishment) ; https://youtu.be/uaiTpRLy52Q?si=osoXQvCWgqX_E7oA
 
 Day 21 - Lectureure topic (Election Commission) ; https://youtu.be/Kn8kKVXgUxU?si=W5hi6co4b2NzKdRe
+
+Day 22 - Lectureure topic (Global Warming) ; https://youtu.be/WBhtOXOkA4M?si=YF3DhWXZtdja7Q4B
+
+Day 23 - Lectureure topic () ;
