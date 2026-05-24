@@ -53,4 +53,6 @@ Day 21 - Lectureure topic (Election Commission) ; https://youtu.be/Kn8kKVXgUxU?s
 
 Day 22 - Lectureure topic (Global Warming) ; https://youtu.be/WBhtOXOkA4M?si=YF3DhWXZtdja7Q4B
 
-Day 23 - Lectureure topic () ;
+Day 23 - Lectureure topic (Cyber Security) ; https://youtu.be/o-1qF6nfe9k?si=9qeJ4_NtpxcHGzPJ
+
+Day 24 - Lectureure topic () ;
