@@ -55,4 +55,4 @@ Day 22 - Lectureure topic (Global Warming) ; https://youtu.be/WBhtOXOkA4M?si=YF3
 
 Day 23 - Lectureure topic (Cyber Security) ; https://youtu.be/o-1qF6nfe9k?si=9qeJ4_NtpxcHGzPJ
 
-Day 24 - Lectureure topic () ;
+Day 24 - Lectureure topic (Social Education) ; https://youtu.be/TaIWNvHZvxw?si=svE_KyVFCAbR7zIr
