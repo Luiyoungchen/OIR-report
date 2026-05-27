@@ -58,3 +58,5 @@ Day 23 - Lectureure topic (Cyber Security) ; https://youtu.be/o-1qF6nfe9k?si=9qe
 Day 24 - Lectureure topic (Social Education) ; https://youtu.be/TaIWNvHZvxw?si=svE_KyVFCAbR7zIr
 
 Day 25 - Lectureure topic (Uniform civil code) ; https://youtu.be/TaIWNvHZvxw?si=4qiOWl0LMGuDcB1V
+
+ay 26 - Lectureure topic (Asean) ; https://youtu.be/wIN2m_L_Eqo?si=GACWFUH1iMDnvTPD
