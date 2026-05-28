@@ -62,3 +62,5 @@ Day 25 - Lectureure topic (Uniform civil code) ; https://youtu.be/TaIWNvHZvxw?si
 Day 26 - Lectureure topic (Asean) ; https://youtu.be/wIN2m_L_Eqo?si=GACWFUH1iMDnvTPD
 
 Day 27 - Lectureure topic (NATO) ; https://youtu.be/k4qNGJ_tVcI?si=aaZzSUmUMeAI9_X_
+
+Day 28 - Lectureure topic (CAA and NRC) ; https://youtu.be/QlABqBHW-Is?si=5LK5RoA3SekFeaPz
