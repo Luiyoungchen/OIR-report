@@ -59,4 +59,6 @@ Day 24 - Lectureure topic (Social Education) ; https://youtu.be/TaIWNvHZvxw?si=s
 
 Day 25 - Lectureure topic (Uniform civil code) ; https://youtu.be/TaIWNvHZvxw?si=4qiOWl0LMGuDcB1V
 
-ay 26 - Lectureure topic (Asean) ; https://youtu.be/wIN2m_L_Eqo?si=GACWFUH1iMDnvTPD
+Day 26 - Lectureure topic (Asean) ; https://youtu.be/wIN2m_L_Eqo?si=GACWFUH1iMDnvTPD
+
+Day 27 - Lectureure topic (NATO) ; https://youtu.be/k4qNGJ_tVcI?si=aaZzSUmUMeAI9_X_
