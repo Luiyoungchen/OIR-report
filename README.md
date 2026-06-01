@@ -68,3 +68,5 @@ Day 28 - Lectureure topic (CAA and NRC) ; https://youtu.be/QlABqBHW-Is?si=5LK5Ro
 Day 29 - Lectureure topic (Tourism in India) ; https://youtu.be/CqOe6hE-aIc?si=3xZfQWG-lxjmDkRT
 
 Day 29 - Lectureure topic (Sex Education) ; https://youtu.be/DH9UT1cEHK8?si=Py6FU3ImeSgQTO6g
+
+DAY-30 EXPERIENCE SSB BANGLORE ; https://youtu.be/V_JzD3Z__-0?si=QtNm9B44jnLPt-ih
