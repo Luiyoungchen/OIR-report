@@ -70,3 +70,5 @@ Day 29 - Lectureure topic (Tourism in India) ; https://youtu.be/CqOe6hE-aIc?si=3
 Day 29 - Lectureure topic (Sex Education) ; https://youtu.be/DH9UT1cEHK8?si=Py6FU3ImeSgQTO6g
 
 DAY-30 EXPERIENCE SSB BANGLORE ; https://youtu.be/V_JzD3Z__-0?si=QtNm9B44jnLPt-ih
+
+Day 31 - Lectureure topic (E-commerce) ; https://youtu.be/V_JzD3Z__-0?si=RKd-MQwQNtslKfdv
