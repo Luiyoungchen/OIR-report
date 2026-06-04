@@ -74,3 +74,5 @@ DAY-30 EXPERIENCE SSB BANGLORE ; https://youtu.be/V_JzD3Z__-0?si=QtNm9B44jnLPt-i
 Day 31 - Lectureure topic (E-commerce) ; https://youtu.be/V_JzD3Z__-0?si=RKd-MQwQNtslKfdv
 
 Day 32 - video https://youtu.be/ZxyEZgNBVJg?si=732yZL2XMSSw0rus
+
+Day 33- things to avoid ; https://youtu.be/ZxyEZgNBVJg?si=cujCvAfvg601MeaU
