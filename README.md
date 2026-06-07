@@ -80,3 +80,5 @@ Day 32 - video https://youtu.be/ZxyEZgNBVJg?si=732yZL2XMSSw0rus
 Day 33- things to avoid ; https://youtu.be/ZxyEZgNBVJg?si=cujCvAfvg601MeaU
 
 Day 34- PPDT ; https://youtu.be/PJLMMi00Mw4?si=uPK9soaEfpmPoOVo
+
+Day -35 - psyc test ; https://youtu.be/-9nYV78MpAk?si=6x2gIagUdPsPdizG
