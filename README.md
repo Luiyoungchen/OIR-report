@@ -82,3 +82,5 @@ Day 33- things to avoid ; https://youtu.be/ZxyEZgNBVJg?si=cujCvAfvg601MeaU
 Day 34- PPDT ; https://youtu.be/PJLMMi00Mw4?si=uPK9soaEfpmPoOVo
 
 Day -35 - psyc test ; https://youtu.be/-9nYV78MpAk?si=6x2gIagUdPsPdizG
+
+Day 36- writing TAT ; https://youtu.be/YFh_h7lp_wo?si=vEISXOycEcMkgtnW
