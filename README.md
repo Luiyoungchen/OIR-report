@@ -84,3 +84,5 @@ Day 34- PPDT ; https://youtu.be/PJLMMi00Mw4?si=uPK9soaEfpmPoOVo
 Day -35 - psyc test ; https://youtu.be/-9nYV78MpAk?si=6x2gIagUdPsPdizG
 
 Day 36- writing TAT ; https://youtu.be/YFh_h7lp_wo?si=vEISXOycEcMkgtnW
+
+Day 37 , why many students fails ; https://youtu.be/pQdI_IZkLfU?si=6oZ0WA64J9pW3TSo
