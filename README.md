@@ -88,3 +88,5 @@ Day 36- writing TAT ; https://youtu.be/YFh_h7lp_wo?si=vEISXOycEcMkgtnW
 Day 37 , why many students fails ; https://youtu.be/pQdI_IZkLfU?si=6oZ0WA64J9pW3TSo
 
 Day-38 , mock interview ; https://youtu.be/Kk-6TqSOP_0?si=VWYE227WjaWjpqi6
+
+Day-39 , Monetary Policy ; https://youtu.be/Am_WQ1_e3-w?si=Skjm91MbojWrp3He
