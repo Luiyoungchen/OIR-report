@@ -94,3 +94,5 @@ Day-39 , Monetary Policy ; https://youtu.be/Am_WQ1_e3-w?si=Skjm91MbojWrp3He
 Day-40 , Banking Awareness ; https://www.youtube.com/live/7AplXE2o6L8?si=O-8bna47lOr_RF26
 
 Day -41 , para jumbles ; https://youtu.be/Gh6-zKMCZyQ?si=Bgjdbd5uCK8tYH3M
+
+That is the end of it!
